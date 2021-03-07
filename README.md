@@ -10,3 +10,9 @@ To download this mod, just click the download button. If the `.exe` file doesn't
 Then, just click on "replace all files".
 
 I do not own the game Friday Night Funkin, this is just a mod.
+
+# Atenção/Attention:
+
+**NÃO JOGUE NO VOLUME MÁXIMO, SE NÃO ESSA BAGAÇA VAI EXPLODIR VIOLENTAMENTE OS SEUS TÍMPANOS E AGRESSIVAMENTE ARRANCAR SUAS GENITAIS FORAS (seu pinto vai cair)**
+
+**DO NOT PLAY THIS ON MAX VOLUME, OR ELSE THIS SHIT WILL VIOLENTLY BLAST YOUR EARDRUMS OFF AND AGRESSIVELY EXPLODE YOUR GENITALS (your dick will fall)**
